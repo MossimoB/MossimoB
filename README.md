@@ -1,5 +1,5 @@
 # 💫 About Me:
-Feel free to look through my profile for whatever you may need!
+Feel free to look through my profile for whatever you may need! 
 
 
 ## 🌐 Socials:
